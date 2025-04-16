@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kshitij-singh-source
-- 👀 I’m interested in  software development .
+- 👀 I’m interested in  software developmehnt .
 - 🌱 I’m currently working ..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
